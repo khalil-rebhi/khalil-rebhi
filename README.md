@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/khalil-rebhi](https://github.com/khalil-rebhi)
 
-- 📫 How to reach me **khalil.rebhi@esprit.tn**
+- 📫 How to reach me **khalilrebhi5@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
